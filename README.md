@@ -1,0 +1,1 @@
+# adhan_privacy_policy_google_play
